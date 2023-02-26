@@ -1,0 +1,1 @@
+Your order will ship soon..
